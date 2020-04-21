@@ -1,1 +1,0 @@
-# Say-Tahmin-Oyunu
